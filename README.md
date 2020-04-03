@@ -1,0 +1,1 @@
+# polkadottx.blogspot.com
